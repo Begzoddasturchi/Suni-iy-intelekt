@@ -1,0 +1,2 @@
+# Suni-iy-intelekt
+Amaliy
